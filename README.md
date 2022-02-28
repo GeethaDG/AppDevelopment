@@ -118,7 +118,6 @@ You can view the main visual graph on home screen as soon as you make an entry. 
 
 ### How to reach Us?
 
-Mail us at : **bachat.gingerbread@gmail.com**
 
 Join our [FACEBOOK](https://www.facebook.com/Bachat-115881850181842) community. 
 
